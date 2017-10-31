@@ -1,5 +1,4 @@
-# Rahul Bishnoi
-
+# Mani Agrawal
 ### Academics
 Graduated 
 
